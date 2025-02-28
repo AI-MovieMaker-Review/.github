@@ -77,9 +77,10 @@ No tool is flawless. Here’s my unfiltered take after testing AI MovieMaker for
 ### Cons  
 - **Limited Customization:** Complex narratives trip it up—think short-form, not feature films.  
 - **AI Quirks:** Voiceovers occasionally sound robotic; scripts lack depth.  
-- **Overhyped Claims:** “Netflix-ready” is a stretch. It’s solid for social media, not Oscar contenders.  
+- **Overhyped Claims:** “Netflix-ready” is a stretch. It’s solid for social media, not Oscar contenders.
 <br>
-[>>Get AI MovieMaker Here](https://warriorplus.com/o2/a/qbth59n/0)
+[>>Get AI MovieMaker Here](https://warriorplus.com/o2/a/qbth59n/0) <br>
+
 ### Comparison Table: AI MovieMaker at a Glance  
 | Aspect            | Rating (1-5) | Notes                            |  
 |-------------------|--------------|----------------------------------|  
