@@ -1,5 +1,5 @@
 # AI MovieMaker Review: Discover the Truth Behind the Hype + Is It Worth It?
-
+![AI MovieMaker Review](https://hudareview.com/wp-content/uploads/2024/10/AI-MovieMaker-2-Review.png)
 ## Table of Contents  
 - [Introduction](#introduction)  
 - [What Is AI MovieMaker?](#what-is-ai-moviemaker)  
